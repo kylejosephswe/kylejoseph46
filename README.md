@@ -7,4 +7,3 @@ About me:
 - 📫 How to reach me: kylejoseph46@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm originally from and raised on a tiny island in the Caribbean before moving to the US
--->
